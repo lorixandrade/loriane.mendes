@@ -3,17 +3,17 @@ Meu nome e Loriane Mendes
 - Estou estudando no alura
 estou desenvolvendo o [Github](https://ww.github.com.br)
 
-uso esse espaco para publicar meus projetos
+uso esse espaco para divulgar meus produtos.
 
 
 ### voce entrar em contato comigo.
- andrade.loriane@escola.pr.gov.br
+ beleza.para.todos@lorex
 
 
 ### rede social isntagram.
-andrade__loriane
+lorex_beleza para todos_a
 
 
 ![..https://media.tenor.com/kLBAdyiub_EAAAAM/barbie-magmaeube.gif
 
-
+<p> os melhores produtos de beleza tem a marca que ela se chama LOREX então busque o melhor para voce, entre em contato com a nossa loja e adquira ja o seu produto.</p>
