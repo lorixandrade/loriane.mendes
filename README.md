@@ -1,7 +1,6 @@
 ### Seja bem vindo ao meu perfil 💝
 Meu nome e Loriane Mendes
-- Estou estudando no alura
-estou desenvolvendo o [Github](https://ww.github.com.br)
+- Minha missao e proprocionar auto-estima para todos. [Github](https://ww.github.com.br)
 
 uso esse espaco para divulgar meus produtos.
 
